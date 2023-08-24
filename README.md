@@ -3,7 +3,11 @@
 
 - 🌱 I’m currently learning **LLM's & Prompt Engineering**
 
+- 🤝 I’m looking for a new job : **Data Analyst.**
+
 - 📫 How to reach me **moreg108@gmail.com**
+
+- 📄 Know about my experiences & learning [https://drive.google.com/file/d/1DpPhPotzqjcyLdaKbxw28fLwydkz2FmZ/view?usp=sharing](https://drive.google.com/file/d/1DpPhPotzqjcyLdaKbxw28fLwydkz2FmZ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
